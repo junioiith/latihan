@@ -1,1 +1,1 @@
-# latihan
+Hanya untuk latihan saja
